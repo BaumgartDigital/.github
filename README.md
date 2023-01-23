@@ -6,4 +6,4 @@ Gemeinsam erfinden und realisieren wir Systeme mit zukunftsweisenden Technologie
 
 Mit individuellen Lösungen, auf die man aufbauen kann.
 
-Website: https://baumgart.digital/ • Telefon: +49 (0) 781 127 863 46  • E-Mail: hallo@baumgart.digital
+Web: https://baumgart.digital/ • Telefon: +49 (0) 781 127 863 46  • E-Mail: hallo@baumgart.digital
